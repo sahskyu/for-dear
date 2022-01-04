@@ -1,0 +1,2 @@
+# for-dear
+untuk seseorang
